@@ -1,2 +1,2 @@
-## Pelin nimi, Juho Mäki
+## Juhon peli, Juho Mäki
 
